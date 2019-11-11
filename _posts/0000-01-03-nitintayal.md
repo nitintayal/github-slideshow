@@ -1,1 +1,2 @@
-Fourth File
+
+The life style of an Indian
